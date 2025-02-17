@@ -1,5 +1,5 @@
 ### Hi there 👋
 
-My name is Savannah (she/her/hers) and I'm a PhD Candidate at Northeastern University in Marine and Environmental Sciences.  I'm in Dr. Steven Scyphers's [Social-Ecological Sustainability Lab](https://scyphersresearch.wixsite.com/home).  We study coastal systems like shorelines and fisheries through a social-ecological systems (SES) perspective, and employ interdisciplinary methodologies to provide scientific knowledge geared to practically benefit coastal ecosystems and societies.  
+My name is Savannah (she/her/hers) and I'm a Postdoctoral Researcher at North Carolina State University and the USGS Southeast Climate Adaptation Science Center.  I study how humans and the environment interact using methods that integrate the expertise of scientists and local communities.
 
 Thanks for stopping by!
